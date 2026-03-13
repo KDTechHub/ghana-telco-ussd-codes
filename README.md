@@ -302,3 +302,4 @@ Use KD Boost Hub for instant MTN, Telecel, AirtelTigo, and Glo data delivery: ht
 
 # ghana-telco-ussd-codes
 Complete Ghana USSD codes for MTN, Telecel, AirtelTigo and Glo
+<https://www.kdboosthub.org>
