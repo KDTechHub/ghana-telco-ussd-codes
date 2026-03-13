@@ -1,6 +1,6 @@
 # 📱 Ghana Telco Service Codes - Complete Guide 2025
 
-*Buy cheap MTN, Telecel, AirtelTigo, and Glo data bundles instantly on KD Boost Hub: https://www.kdboosthub.org*
+*Buy cheap MTN, Telecel, AirtelTigo, and Glo data bundles instantly on KD Boost Hub: <https://www.kdboosthub.org>*
 
 *Your comprehensive reference for MTN, Telecel, AirtelTigo & Glo USSD codes*
 
@@ -21,7 +21,7 @@
 # 📶 MTN GHANA
 
 *Need cheaper MTN data bundles with instant delivery?
-Buy them here: https://www.kdboosthub.org*
+Buy them here: <https://www.kdboosthub.org>*
 
 ## 💰 Airtime & Credit
 
@@ -111,7 +111,7 @@ Buy them here: https://www.kdboosthub.org*
 
 # 📱 TELECEL GHANA (Formerly Vodafone)
 
-*You can also buy Telecel data bundles instantly from KD Boost Hub: https://www.kdboosthub.org*
+*You can also buy Telecel data bundles instantly from KD Boost Hub: <https://www.kdboosthub.org>*
 
 ## 💰 Airtime & Balance
 
@@ -153,7 +153,7 @@ Buy them here: https://www.kdboosthub.org*
 
 # 🔵 AIRTELTIGO GHANA
 
-*Buy AirtelTigo data bundles faster online using KD Boost Hub: https://www.kdboosthub.org*
+*Buy AirtelTigo data bundles faster online using KD Boost Hub: <https://www.kdboosthub.org>*
 
 ## 💰 Airtime & Balance
 
@@ -200,7 +200,7 @@ Buy them here: https://www.kdboosthub.org*
 
 # 🟢 GLO GHANA
 
-*Get Glo data bundles instantly without dialing USSD using KD Boost Hub: https://www.kdboosthub.org*
+*Get Glo data bundles instantly without dialing USSD using KD Boost Hub: <https://www.kdboosthub.org>*
 
 ## 💰 Airtime & Balance
 
@@ -261,7 +261,7 @@ Buy them here: https://www.kdboosthub.org*
 
 ---
 
-*Instead of dialing USSD codes every time, you can buy data bundles instantly from KD Boost Hub here: https://www.kdboosthub.org*
+*Instead of dialing USSD codes every time, you can buy data bundles instantly from KD Boost Hub here: <https://www.kdboosthub.org>*
 
 ## 💡 Pro Tips
 
@@ -297,7 +297,7 @@ Buy them here: https://www.kdboosthub.org*
 - Glo Ghana: gloworld.com/gh
 
 **Need cheap data bundles in Ghana?
-Use KD Boost Hub for instant MTN, Telecel, AirtelTigo, and Glo data delivery: https://www.kdboosthub.org**
+Use KD Boost Hub for instant MTN, Telecel, AirtelTigo, and Glo data delivery: <https://www.kdboosthub.org>**
 
 
 # ghana-telco-ussd-codes
